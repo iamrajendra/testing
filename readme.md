@@ -1,1 +1,1 @@
-2
+I am going to use editor to write the commit message
