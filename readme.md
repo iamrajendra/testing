@@ -1,2 +1,2 @@
-
-I love my india
+I love my country
+I love my parents
